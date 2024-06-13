@@ -1,4 +1,6 @@
+https://www.youtube.com/watch?v=aTvelC_T9EE
 
+https://www.youtube.com/watch?v=7PdWnodDZXw
 
 프로젝트 - 1 내용 생략
 
